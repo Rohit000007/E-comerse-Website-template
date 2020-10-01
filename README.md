@@ -1,1 +1,1 @@
-# E-comerse-Website-template
+# TEMPLATE FOR E-COMMERCE WEBSITES
